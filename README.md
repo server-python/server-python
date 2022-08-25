@@ -3,7 +3,7 @@ everyone is behind me :)
 but with an axe):
 
 
-The languages ​​I learn :)
+The languages ​​I learned :)
 
 python
 
